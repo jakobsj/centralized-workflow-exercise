@@ -8,7 +8,7 @@
 - 1 lime
 - 1 tsp salt
 - 1/2 onion
-- 1 Tbsp coriander
+- 10 Tbsp coriander!!
 
 
 ## Instructions
