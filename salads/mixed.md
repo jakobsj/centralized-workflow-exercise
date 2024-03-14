@@ -15,7 +15,7 @@
 
 - **1/4 cup** extra virgin olive oil
 - **2 tablespoons** fresh lemon juice
-- **1 teaspoon** honey or maple syrup (adjust to taste)
+- **1/2 teaspoon** honey or maple syrup (adjust to taste)
 - **1 small clove** garlic, minced
 - **Salt and pepper** to taste
 
