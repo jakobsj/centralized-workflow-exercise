@@ -15,5 +15,5 @@
 1. **Put everything together:**
    - Mix evertying up, that's it.
 
-5. **Serve:**
+2. **Serve:**
    - Enjoy the salad.
