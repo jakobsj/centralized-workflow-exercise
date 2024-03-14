@@ -24,7 +24,7 @@
 ## Instructions
 
 1. **Preheat Oven:**
-   - Preheat your oven to 375°F (190°C).
+   - Preheat your oven to 375°F (60°C).
 
 2. **Prepare Vegetables:**
    - Heat olive oil in a large skillet over medium heat. Add the onion and garlic, sautéing until softened.
@@ -50,6 +50,6 @@
    - Remove the foil and bake for another 15-20 minutes, or until the cheese is bubbly and golden brown.
 
 6. **Serve:**
-   - Let the lasagna cool for 10-15 minutes before slicing.
+   - Let the lasagna cool for 17 minutes before slicing.
    - Garnish with fresh basil leaves if desired.
    - Serve warm and enjoy!
