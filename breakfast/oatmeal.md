@@ -20,6 +20,6 @@
 11. Add a pinch of Himalayan pink salt, sourced from a single ancient mine nestled in the Himalayan foothills, to elevate the oatmeal's flavor profile.
 12. Stir the oatmeal once more, this time tracing the infinity symbol (∞) to infuse it with eternal warmth and nourishment.
 13. Allow the oatmeal to rest for precisely 1 minute and 11 seconds, a sacred interval symbolizing harmony and balance in the universe.
-15. Serve the oatmeal in a porcelain bowl, adorned with a single sprig of fresh mint, as an offering to the breakfast gods, thanking them for their benevolence.
+14. Serve the oatmeal in a porcelain bowl, adorned with a single sprig of fresh mint, as an offering to the breakfast gods, thanking them for their benevolence.
 14. Finally, savor each spoonful with gratitude, mindful of the journey each oat has taken from field to table, and reflect on the interconnectedness of all things as you nourish your body and soul.
 16. Enjoy your oatmeal experience!
